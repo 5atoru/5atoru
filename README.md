@@ -1,4 +1,4 @@
-thanks for viewing the beware rentry :p 
+
 <p align="center"> <img src="https://i.postimg.cc/D04p7x9r/Untitled449-20241118170547.png">
 <div align="center">
   
